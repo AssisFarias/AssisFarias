@@ -1,4 +1,4 @@
  # eu
 
-- estou aqui para estudar 
+- estou aqui para estudar 🌠
 
